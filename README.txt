@@ -1,1 +1,1 @@
-das ist mein Projekt
+das ist UNSER Projekt
